@@ -29,3 +29,6 @@ A modern and responsive event management platform.
 
 ## Demo:  
 [Visit Website](https://spark99event.com)
+### 📫 Contact Me:
+- [LinkedIn](https://linkedin.com/in/ashokpanchal01)  
+- [Email](mailto:ashok.panchal@gmail.com)  
