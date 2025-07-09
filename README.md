@@ -13,4 +13,4 @@
 2. [Fab Export India Website](https://fabexportindia.com)  
 
 #### 📫 Get in Touch  
-[LinkedIn](linkedin.com/in/ashokpanchal01) | [WhatsApp](https://wa.me/919313470939)) | [Email](mailto:ashok@example.com)
+[LinkedIn](linkedin.com/in/ashokpanchal01) | [Email](mailto:ashokpanchal890@gmail.com.com)
